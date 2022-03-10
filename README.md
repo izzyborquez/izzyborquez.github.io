@@ -1,1 +1,1 @@
-# Map of my favorite West Coast locations
+izzyborquez.github.io
